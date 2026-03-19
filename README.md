@@ -1,2 +1,0 @@
-# lyrics
-music lyrics
